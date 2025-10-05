@@ -4,7 +4,7 @@
 
 ---
 
-## 🚀 About Macro Bite
+## 🚀 About Macro Bite 
 
 Macro Bite is your daily partner in eating smart, living healthy, and saving time. We deliver chef-crafted, macro-balanced meals straight to your doorstep — no cooking, no stress, just clean eating made easy.
 
