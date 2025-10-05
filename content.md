@@ -1,6 +1,6 @@
 # Macro Bite 🍽️
 
-**Eat Smart. Live Better.**
+**Eat Smart. Live Better.** 
 
 ---
 
