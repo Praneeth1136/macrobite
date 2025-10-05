@@ -1,4 +1,4 @@
-# Macro Bite 🍽️ 
+# Macro Bite 🍽️
 
 **Eat Smart. Live Better.**
 
